@@ -1,1 +1,0 @@
-# what-i-learned-week-0
